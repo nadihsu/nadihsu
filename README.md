@@ -1,3 +1,3 @@
+#### Hello, 
 
-Hello, 
-Stay Hungry, Stay Awesome!
+Stay Hungry, Stay Foolish, Stay Awesome 🤘
