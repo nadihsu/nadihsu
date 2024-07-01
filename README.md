@@ -1,3 +1,3 @@
-#### Hello, 
+#### Hello, I'm Peter.
 
-Stay Hungry, Stay Foolish, Stay Awesome 🤘
+Remember to make software development fun! 
